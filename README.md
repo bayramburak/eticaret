@@ -1,1 +1,1 @@
-Odev - 9 eticaret
+Odev - 8 eticaret
